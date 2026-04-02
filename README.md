@@ -8,7 +8,7 @@
 ## 👑 CROWN皇冠代理 | 住宅原生独享 | 100-500M超大带宽
 
 ### 🌐 官网地址 · 住宅原生独享100-500M
-👉 [点此注册](http://www.ipcrown.com/register?invitation=gsyunip&shareid=71)
+👉 [点此注册](http://www.ipcrown.com/register?invitation=gsyunip&shareid=71) 即可免费领取10条测试线路
 
 > 🌟 **CROWN皇冠代理专注提供全球原生住宅独享IP**，带宽高达100-500M，高速稳定，助力TikTok直播、跨境电商、海外社媒运营畅通无阻。
 
@@ -49,7 +49,7 @@
 ## 💎 无双IP | 国内外全球Socks5/L2TP代理 | 稳定独享IP全球节点
 
 ### 🌐 官网地址 · 200M香港10元起
-👉 [点此注册](https://new.6nn.net/admin#/login?scope=register&inviteCode=8JzmjbeYkBZq)
+👉 [点此注册](https://new.6nn.net/admin#/login?scope=register&inviteCode=8JzmjbeYkBZq) 即享免费测试
 
 > 🏆 **无双代理提供高品质海外代理服务**，采用纯净静态住宅IP，覆盖美国、日本、德国等多个国家与地区，老用户口碑认证！
 
